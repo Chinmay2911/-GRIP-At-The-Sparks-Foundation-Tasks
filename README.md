@@ -1,1 +1,1 @@
-# -GRIP-At-The-Sparks-Foundation-Tasks
+# GRIP-At-The-Sparks-Foundation-Tasks
